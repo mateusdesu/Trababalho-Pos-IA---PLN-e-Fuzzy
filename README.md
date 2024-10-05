@@ -1,0 +1,1 @@
+# Trababalho-Pos-IA---PLN-e-Fuzzy
